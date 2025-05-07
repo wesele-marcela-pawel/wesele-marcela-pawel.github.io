@@ -1,1 +1,0 @@
-# wesele-marcela-pawel.github.io
